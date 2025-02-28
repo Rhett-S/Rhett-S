@@ -1,4 +1,4 @@
-# <a href="https://www.linkedin.com/in/rhett-singleton/">Rhett Singleton</a>'s IT and Cybersecurity Project Portfolio 🔐
+# <a href="https://www.linkedin.com/in/rhett-singleton/">Rhett Singleton's</a> IT and Cybersecurity Project Portfolio 🔐
 
 FINISH SUMMARY
 
